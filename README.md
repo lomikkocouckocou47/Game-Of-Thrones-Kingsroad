@@ -241,4 +241,4 @@ Game of Thrones: Kingsroad is available as a complete free version, with all fea
 Dive into the thrilling world of Westeros and download Game of Thrones: Kingsroad today!
 
 ---
-**Last updated:** 2026-10-20 22:01:14 UTC
+**Last updated:** 2026-10-21 01:11:53 UTC
